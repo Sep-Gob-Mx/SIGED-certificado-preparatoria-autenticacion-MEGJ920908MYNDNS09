@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MEGJ920908MYNDNS09
+MEGJ920908MYNDNS09
